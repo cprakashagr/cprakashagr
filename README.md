@@ -29,6 +29,6 @@ you could check my [professional landscape here](https://cprakashagr.xyz/prof_ls
 
 <br>countries in my passports
 
-🇭🇰  🇻🇳  🇰🇭  🇹🇭  🇸🇬
+🇭🇰  🇻🇳  🇰🇭  🇹🇭  🇸🇬  🇨🇦  🇺🇸
 
 <br>visit my [website](https://cprakashagr.xyz?utm_source=githubpage), to connect with me
